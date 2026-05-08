@@ -1,0 +1,1 @@
+# sample-shore.github.io
